@@ -1,0 +1,1 @@
+Open the web browser shortcut link inside the code folder to play 
